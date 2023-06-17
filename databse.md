@@ -1,0 +1,5 @@
+![image](https://github.com/Blackbird-3/quiz/assets/92109396/36d9f677-211d-4dba-9ba6-edd6f7102c38)
+![image](https://github.com/Blackbird-3/quiz/assets/92109396/5539916a-3dd1-474c-b5a5-8880e1bc7b49)
+![image](https://github.com/Blackbird-3/quiz/assets/92109396/ff407760-bd9e-4724-895f-c7adfcc3f7ad)
+![image](https://github.com/Blackbird-3/quiz/assets/92109396/c59d39bd-4f6c-4b80-beb5-42645af09646)
+![image](https://github.com/Blackbird-3/quiz/assets/92109396/eea9fcc7-d698-416f-805f-8aa765fce8af)
